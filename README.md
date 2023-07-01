@@ -1,2 +1,2 @@
-_**How do cows get their gossip? They herd it through the bovine.**_
+_**What did one snowman say to the other snowman? 'Do you smell carrots?'**_
 
