@@ -1,2 +1,2 @@
-_**Why did the old man fall in the well? Because he couldn't see that well.**_
+_**Did you hear about the stallion and the mare? They had a stable relationship.**_
 
