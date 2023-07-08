@@ -1,2 +1,2 @@
-_**Did you hear about the stallion and the mare? They had a stable relationship.**_
+_**What's the difference between Bird flu and swine flu? For one you get tweetment and the other you get oinkment...**_
 
