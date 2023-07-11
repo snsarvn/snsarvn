@@ -1,2 +1,2 @@
-_**Do you know why one side of the the V formation of geese in flight is longer than the other side? Because It has more geese in it!**_
+_**What do you call a boomerang that doesn't come back? A boomer-WRONG!**_
 
