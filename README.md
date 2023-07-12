@@ -1,2 +1,2 @@
-_**What do you call a boomerang that doesn't come back? A boomer-WRONG!**_
+_**Don't you hate jokes about German sausage? They're the wurst!**_
 
