@@ -1,2 +1,2 @@
-_**Don't you hate jokes about German sausage? They're the wurst!**_
+_**I tried to change my password to 14days... The computer said it was two week.**_
 
