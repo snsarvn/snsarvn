@@ -1,2 +1,2 @@
-_**What did one dry erase marker say to the other? I'm bored!**_
+_**What instrument does God play? He plays the cello. As it says in scripture: "Our God is a cellist God."**_
 
