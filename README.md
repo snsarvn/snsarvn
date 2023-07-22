@@ -1,2 +1,2 @@
-_**What instrument does God play? He plays the cello. As it says in scripture: "Our God is a cellist God."**_
+_**Why did the vegetable band break up? They couldn't keep a beet.**_
 
