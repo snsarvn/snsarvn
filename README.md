@@ -1,2 +1,2 @@
-_**Why did the vegetable band break up? They couldn't keep a beet.**_
+_**What's brown and sticky? A stick**_
 
