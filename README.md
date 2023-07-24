@@ -1,2 +1,2 @@
-_**What's brown and sticky? A stick**_
+_**What do you call somebody with no body and no nose? Nobody knows.**_
 
