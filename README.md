@@ -1,2 +1,2 @@
-_**What did one nose say when the other nose said "I love you"? "Back achoo!"**_
+_**Whatever you do, always give 100%... Unless of course, you're donating blood.**_
 
