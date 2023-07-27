@@ -1,2 +1,2 @@
-_**Whatever you do, always give 100%... Unless of course, you're donating blood.**_
+_**What did the flat iron say to the follicle? Now let me get this straight...**_
 
