@@ -1,2 +1,2 @@
-_**What did the flat iron say to the follicle? Now let me get this straight...**_
+_**What does a ghost cow say? *wave arms around* MoooooOOOOOOoooooooo**_
 
