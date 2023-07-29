@@ -1,2 +1,2 @@
-_**What does a ghost cow say? *wave arms around* MoooooOOOOOOoooooooo**_
+_**What has more letters than the alphabet? The post office.**_
 
