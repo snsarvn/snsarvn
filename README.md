@@ -1,2 +1,2 @@
-_**Why did the knife quit? It couldn't CUT IT!**_
+_**I've won the war! My pants fit! **Congratulations, have you lost weight?** _Even better... I've bought new pants!!!_**_
 
