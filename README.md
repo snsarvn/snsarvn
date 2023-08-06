@@ -1,2 +1,2 @@
-_**I've won the war! My pants fit! **Congratulations, have you lost weight?** _Even better... I've bought new pants!!!_**_
+_**What do you do if you see a spaceman? You park in it, man.**_
 
