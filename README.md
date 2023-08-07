@@ -1,2 +1,2 @@
-_**What do you do if you see a spaceman? You park in it, man.**_
+_**What do Egyptians do when their mass transit breaks down? Get Anubis.**_
 
