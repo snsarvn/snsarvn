@@ -1,2 +1,2 @@
-_**What do Egyptians do when their mass transit breaks down? Get Anubis.**_
+_**Who is the roundest knight at King Arthur's table? Sir Cumference.**_
 
