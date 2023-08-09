@@ -1,2 +1,2 @@
-_**Who is the roundest knight at King Arthur's table? Sir Cumference.**_
+_**What do you call a cow with 2 legs? Lean beef.**_
 
