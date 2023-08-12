@@ -1,2 +1,2 @@
-_**When is booger not a booger? When it('s not).**_
+_**They told me I had type "A" blood... turns out it was a typo.**_
 
