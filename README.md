@@ -1,2 +1,2 @@
-_**They told me I had type "A" blood... turns out it was a typo.**_
+_**I know a woman who owns a taser... Let me tell you, she's stunning!**_
 
