@@ -1,2 +1,2 @@
-_**Why should you never invite a boxer to a party? He always throws the punch.**_
+_**Why did the frog call his insurance company? He had a jump in his car.**_
 
