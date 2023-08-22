@@ -1,2 +1,2 @@
-_**Why did the boy take a pencil and paper to bed? He was told to draw the curtains before going to sleep.**_
+_**Why did the dog sleep on the chandelier? Because he was a light sleeper.**_
 
