@@ -1,2 +1,2 @@
-_**What does a can of tuna say? Premium flaked tuna Best before dd/mm/yy**_
+_**What did the lazy surgeon say to his patient? Suture self!**_
 
