@@ -1,2 +1,2 @@
-_**What did the lazy surgeon say to his patient? Suture self!**_
+_**What do you call an animal that goes through your trash and tells great stories? A raccoonteur.**_
 
