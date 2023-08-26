@@ -1,2 +1,2 @@
-_**What do you call an animal that goes through your trash and tells great stories? A raccoonteur.**_
+_**Why did the mechanic go to art school? Because he wanted to learn how to make a van go!**_
 
