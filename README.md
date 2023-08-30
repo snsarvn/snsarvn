@@ -1,2 +1,2 @@
-_**What do you call a Macho Man Randy Savage that does not belong to you? Nacho Man Randy Savage!**_
+_**How do you kill a vampire from the South? With a chicken fried stake**_
 
