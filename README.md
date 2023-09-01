@@ -1,2 +1,2 @@
-_**Why did the wave fail the driving test? It kept crashing on the beach.**_
+_**Why don't you want your nose to be 12 inches long? because then it would be a foot!**_
 
