@@ -1,2 +1,2 @@
-_**How did the Pillsbury Dough Boy Die? A Yeast Infection**_
+_**Why did Mrs. Grape leave Mr. Grape? She was tired of raisin kids.**_
 
