@@ -1,2 +1,2 @@
-_**Why cant college students take exams at the zoo? Too many cheetahs**_
+_**Why do ghosts like to ride elevators? It lifts their spirits.**_
 
