@@ -1,2 +1,2 @@
-_**What do you get when you cross a crocodile with a cartridge? A snapshot.**_
+_**This Post just says it all! It all.**_
 
