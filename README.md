@@ -1,2 +1,2 @@
-_**This Post just says it all! It all.**_
+_**An Olympic gymnast walked into a bar... She didn't get a medal...**_
 
