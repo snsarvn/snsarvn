@@ -1,2 +1,2 @@
-_**Every single morning I get hit by the same bike... It's a vicious cycle.**_
+_**What kind of boats do smart people ride on? Scholar ships!**_
 
