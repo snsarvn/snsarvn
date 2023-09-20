@@ -1,2 +1,2 @@
-_**Why did the musician call his parents? Because he hit a flat note.**_
+_**Someone sly sheared sleeping sheep. Talk about shear terror.**_
 
