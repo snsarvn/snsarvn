@@ -1,2 +1,2 @@
-_**Someone sly sheared sleeping sheep. Talk about shear terror.**_
+_**I'm so sad because my friend is moving to Shanghai. More like Shang-bye.**_
 
