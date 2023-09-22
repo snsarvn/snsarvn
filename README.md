@@ -1,2 +1,2 @@
-_**I'm so sad because my friend is moving to Shanghai. More like Shang-bye.**_
+_**My dental hygienist retired after working 55 years... All she got was a lousy plaque...**_
 
