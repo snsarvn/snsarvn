@@ -1,2 +1,2 @@
-_**My dental hygienist retired after working 55 years... All she got was a lousy plaque...**_
+_**What does a nosey pepper do? Gets jalapeno business!**_
 
