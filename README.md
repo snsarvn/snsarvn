@@ -1,2 +1,2 @@
-_**What does a nosey pepper do? Gets jalapeno business!**_
+_**Why did the bacteria cross the microscope? To get to the other slide**_
 
