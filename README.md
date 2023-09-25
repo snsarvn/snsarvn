@@ -1,2 +1,2 @@
-_**Why did the bacteria cross the microscope? To get to the other slide**_
+_**What kind of dog can do magic tricks? A labracadabrador.**_
 
