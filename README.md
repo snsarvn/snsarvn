@@ -1,2 +1,2 @@
-_**What kind of dog can do magic tricks? A labracadabrador.**_
+_**You know what I hate about fashion designers? They are so clothes-minded.**_
 
