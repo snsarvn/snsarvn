@@ -1,2 +1,2 @@
-_**I went to the dermatologist about something on my neck- -and they said I just needed to scrub it!!!**_
+_**What celebrity never payed with a cheque or credit? Johnny Cash.**_
 
