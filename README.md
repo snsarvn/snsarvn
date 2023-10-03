@@ -1,2 +1,2 @@
-_**What do you call someone who points out the obvious? Someone who points out the obvious.**_
+_**What is the world famous Chef Gordon's favorite football team? The Ramsays**_
 
