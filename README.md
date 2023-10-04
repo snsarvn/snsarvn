@@ -1,2 +1,2 @@
-_**What is the world famous Chef Gordon's favorite football team? The Ramsays**_
+_**What did the German physicist use to drink his beer? Ein stein.**_
 
