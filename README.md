@@ -1,2 +1,2 @@
-_**What did the German physicist use to drink his beer? Ein stein.**_
+_**What's the difference between unlawful and illegal? Unlawful is against the law and illegal is a sick bird.**_
 
