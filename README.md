@@ -1,2 +1,2 @@
-_**Why did the chicken cross the road? To get to the other side.**_
+_**Did someone say "purple"? Sorry, it must have been a pigment of my imagination!**_
 
