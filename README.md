@@ -1,2 +1,2 @@
-_**How much do drum shaped sofas cost? 5 dollars per-cushion.**_
+_**Why did the golfer wear two pairs of pants? In case he gets a hole in one**_
 
