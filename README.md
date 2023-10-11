@@ -1,2 +1,2 @@
-_**Why did the golfer wear two pairs of pants? In case he gets a hole in one**_
+_**What do you call coffee made from coal? Tarbucks.**_
 
