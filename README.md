@@ -1,2 +1,2 @@
-_**What do you call coffee made from coal? Tarbucks.**_
+_**Why did the knife quit? It couldn't CUT IT!**_
 
