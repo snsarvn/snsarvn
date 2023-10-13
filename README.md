@@ -1,2 +1,2 @@
-_**Why did the knife quit? It couldn't CUT IT!**_
+_**Almonds on the tree; Amonds off the tree cause to get them off the tree you hafta shake the "L" out of them!**_
 
