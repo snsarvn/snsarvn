@@ -1,2 +1,2 @@
-_**Almonds on the tree; Amonds off the tree cause to get them off the tree you hafta shake the "L" out of them!**_
+_**What do you call 99 bunnies walking forward and they take one step backwards? A receding hare line.**_
 
