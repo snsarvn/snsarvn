@@ -1,2 +1,2 @@
-_**College My son took Rock Climbing in college but he had to drop the class. He couldn't find any "Cliff Notes."**_
+_**What do you call a bee from the wrong side of town? A bumblegee**_
 
