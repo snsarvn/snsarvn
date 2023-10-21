@@ -1,2 +1,2 @@
-_**Why did Mrs. Grape leave Mr. Grape? She was tired of raisin kids.**_
+_**What will you call a person who sleeps next to a close relative? A napkin.**_
 
