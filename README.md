@@ -1,2 +1,2 @@
-_**What will you call a person who sleeps next to a close relative? A napkin.**_
+_**Knock Knock Who's there Boo!! Boo who? Don't cry, it's only a joke**_
 
