@@ -1,2 +1,2 @@
-_**Knock Knock Who's there Boo!! Boo who? Don't cry, it's only a joke**_
+_**Did you hear about the two silk worms that got in a fight? It ended in a tie.**_
 
