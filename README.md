@@ -1,2 +1,2 @@
-_**Did you hear about the two silk worms that got in a fight? It ended in a tie.**_
+_**Why do birds fly south for the winter? because its too far to walk!**_
 
