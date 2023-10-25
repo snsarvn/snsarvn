@@ -1,2 +1,2 @@
-_**Why do birds fly south for the winter? because its too far to walk!**_
+_**Why does the Pope only eat munchkins? Cause they're the holy part of the donut!**_
 
