@@ -1,2 +1,2 @@
-_**Why does the Pope only eat munchkins? Cause they're the holy part of the donut!**_
+_**What is green, sings and can be found in the fridge? Elvis Parsley**_
 
