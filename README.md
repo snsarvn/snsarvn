@@ -1,2 +1,2 @@
-_**What is green, sings and can be found in the fridge? Elvis Parsley**_
+_**When do you know you are getting a good deal on a boat? When there's a sail on it.**_
 
