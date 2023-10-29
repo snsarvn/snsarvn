@@ -1,2 +1,2 @@
-_**So today is Star Wars day May the fourth be with you!**_
+_**I don't have a Facebook or Twitter account... ...so I just go around announcing out loud what I'm doing at random times. I've got 3 followers so far, but I think 2 are cops.**_
 
