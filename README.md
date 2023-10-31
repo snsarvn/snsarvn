@@ -1,2 +1,2 @@
-_**How do you know it's time to go to bed? Hitler is raping you!**_
+_**Why couldn't the skeleton cross the street? Because he didn't have the guts!**_
 
