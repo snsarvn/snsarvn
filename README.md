@@ -1,2 +1,2 @@
-_**What do you call a very religious person who sleep walks? A Roman Catholic.**_
+_**Why do ducks have flat feet? To stomp out forest fires. Why do elephants have flat feet? To stomp out flaming ducks.**_
 
