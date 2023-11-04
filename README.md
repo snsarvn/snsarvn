@@ -1,2 +1,2 @@
-_**Why do ducks have flat feet? To stomp out forest fires. Why do elephants have flat feet? To stomp out flaming ducks.**_
+_**Why'd the hipster burn his mouth on his coffee? Because he drank it before it was cool.**_
 
