@@ -1,2 +1,2 @@
-_**Why'd the hipster burn his mouth on his coffee? Because he drank it before it was cool.**_
+_**Why did the boy take a ladder to school? He wanted to go to high school.**_
 
