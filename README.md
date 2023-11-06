@@ -1,2 +1,2 @@
-_**Why did the boy take a ladder to school? He wanted to go to high school.**_
+_**What do you call a boomerang that doesn't come back? A Stick**_
 
