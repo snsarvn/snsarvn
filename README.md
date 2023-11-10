@@ -1,2 +1,2 @@
-_**Two peanuts were walking down the street.... And one of them was assaulted**_
+_**What did the wall ask the picture? (All together now!) ***"How's it hangin'?"*****_
 
