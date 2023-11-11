@@ -1,2 +1,2 @@
-_**What did the wall ask the picture? (All together now!) ***"How's it hangin'?"*****_
+_**What do you say to someone who is making a cardboard belt? "That's a waist of paper!"**_
 
