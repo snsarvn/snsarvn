@@ -1,2 +1,2 @@
-_**What do you say to someone who is making a cardboard belt? "That's a waist of paper!"**_
+_**Why don't melons ever run away and get married? Because they cantaloupe!**_
 
