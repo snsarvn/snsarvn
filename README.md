@@ -1,2 +1,2 @@
-_**Why don't melons ever run away and get married? Because they cantaloupe!**_
+_**How many nihilists does it take to screw in a lightbulb? #**_
 
