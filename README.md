@@ -1,2 +1,2 @@
-_**How many nihilists does it take to screw in a lightbulb? #**_
+_**If all of Ireland sank, what part of it wouldn't? County Cork**_
 
