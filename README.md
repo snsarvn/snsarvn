@@ -1,2 +1,2 @@
-_**If all of Ireland sank, what part of it wouldn't? County Cork**_
+_**Who is the only superhuman Frozone can't deal with? Thor.**_
 
