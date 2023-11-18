@@ -1,2 +1,2 @@
-_**Why was the belt sent to jail? For holding up the pants.**_
+_**A cow fell off a truck in Russia. Apparently he hadn't been Put in properly.**_
 
