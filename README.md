@@ -1,2 +1,2 @@
-_**A cow fell off a truck in Russia. Apparently he hadn't been Put in properly.**_
+_**Why was the dolphin happy and the shark depressed? The sharks life lacked porpoise.**_
 
