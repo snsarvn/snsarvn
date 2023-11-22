@@ -1,2 +1,2 @@
-_**How much does a Chinese elephant weigh? Wonton**_
+_**Why did the chicken cross the playground? To get to the other slide**_
 
