@@ -1,2 +1,2 @@
-_**Why did the chicken cross the playground? To get to the other slide**_
+_**Why did the bee go to the doctor? Because he had hives.**_
 
