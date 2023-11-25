@@ -1,2 +1,2 @@
-_**My friend told an out of place joke about police searches. But I don't think it was warranted.**_
+_**You can pick your friends, and you can pick your nose... But you can't pick your friend's nose**_
 
