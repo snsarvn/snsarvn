@@ -1,2 +1,2 @@
-_**You can pick your friends, and you can pick your nose... But you can't pick your friend's nose**_
+_**How do you prepare for a party in space? You planet**_
 
