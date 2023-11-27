@@ -1,2 +1,2 @@
-_**How do you prepare for a party in space? You planet**_
+_**What do you call a happy penguin? A pengrin!**_
 
