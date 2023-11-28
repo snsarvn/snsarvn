@@ -1,2 +1,2 @@
-_**What do you call a happy penguin? A pengrin!**_
+_**Why did the dog sleep on the chandelier? Because he was a light sleeper.**_
 
