@@ -1,2 +1,2 @@
-_**I know a woman who owns a taser... Let me tell you, she's stunning!**_
+_**Why should you avoid people dressed as celery? They could be stalking you!**_
 
