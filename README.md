@@ -1,2 +1,2 @@
-_**Why should you avoid people dressed as celery? They could be stalking you!**_
+_**What happens when you don't serve drinks at a party? There's no punch line.**_
 
