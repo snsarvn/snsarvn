@@ -1,2 +1,2 @@
-_**What happens when you don't serve drinks at a party? There's no punch line.**_
+_**What did the traffic light say to the car? Don't look at me I'm changing.**_
 
