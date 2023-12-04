@@ -1,2 +1,2 @@
-_**What cars do cows drive? Cattleacs**_
+_**Why don't blind people skydive? Because it scares their dogs too much!**_
 
