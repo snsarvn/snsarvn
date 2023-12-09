@@ -1,2 +1,2 @@
-_**What do you call an alligator in a vest? Investigator.**_
+_**Two artists had an art contest... It ended in a draw**_
 
