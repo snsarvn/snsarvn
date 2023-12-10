@@ -1,2 +1,2 @@
-_**Two artists had an art contest... It ended in a draw**_
+_**Like most people my age... I'm 27.**_
 
