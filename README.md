@@ -1,2 +1,2 @@
-_**I heard she accidentally spilled her chocolate milkshake on her white poodle- -knick knack paddy whack give the dog a... bath!!!**_
+_**Why did Humpty Dumpty have a great fall? To make up for a lousy summer.**_
 
