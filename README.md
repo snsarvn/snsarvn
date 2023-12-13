@@ -1,2 +1,2 @@
-_**Why did Humpty Dumpty have a great fall? To make up for a lousy summer.**_
+_**I'm naming my TV remote Waldo... ...for obvious reasons.**_
 
