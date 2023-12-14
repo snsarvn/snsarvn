@@ -1,2 +1,2 @@
-_**I'm naming my TV remote Waldo... ...for obvious reasons.**_
+_**How can you tell if a hamburger was grilled in space? It's a little meteor.**_
 
