@@ -1,2 +1,2 @@
-_**How can you tell if a hamburger was grilled in space? It's a little meteor.**_
+_**Why did the scale decide that the scam artists were heavier than the novels? Because the cons outweighed the prose.**_
 
