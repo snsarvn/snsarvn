@@ -1,2 +1,2 @@
-_**Why did the scale decide that the scam artists were heavier than the novels? Because the cons outweighed the prose.**_
+_**What did the closed can say to the half opened can? YOU'RE BEING UNCANNY!**_
 
