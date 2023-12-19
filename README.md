@@ -1,2 +1,2 @@
-_**What do you say when you find two banana peels together? Answer: A pair of slipper**_
+_**What did the Estonian student say in language class? I'll never Finnish. *dodges tomato***_
 
