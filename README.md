@@ -1,2 +1,2 @@
-_**What did the Estonian student say in language class? I'll never Finnish. *dodges tomato***_
+_**What song can never be played on #throwback Thursday? Friday by Rebecca Black**_
 
