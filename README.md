@@ -1,2 +1,2 @@
-_**What song can never be played on #throwback Thursday? Friday by Rebecca Black**_
+_**Want to hear a dirty joke? This boy trips and falls into some mud.**_
 
