@@ -1,2 +1,2 @@
-_**Why is there very little honey in Belgium? Because there is only one B in Belgium**_
+_**Do you know why one side of the the V formation of geese in flight is longer than the other side? Because It has more geese in it!**_
 
