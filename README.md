@@ -1,2 +1,2 @@
-_**Do you know why one side of the the V formation of geese in flight is longer than the other side? Because It has more geese in it!**_
+_**Two fish in a tank Fish 1:"Uh, Greg?" Fish 2:"What?" Fish 1:"How do we drive this thing"**_
 
