@@ -1,2 +1,2 @@
-_**Two fish in a tank Fish 1:"Uh, Greg?" Fish 2:"What?" Fish 1:"How do we drive this thing"**_
+_**My friend told an out of place joke about police searches. But I don't think it was warranted.**_
 
