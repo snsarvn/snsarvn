@@ -1,2 +1,2 @@
-_**My friend told an out of place joke about police searches. But I don't think it was warranted.**_
+_**How many tickles does it take to make a squid laugh? Tentacles.**_
 
