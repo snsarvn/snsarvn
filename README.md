@@ -1,2 +1,2 @@
-_**How many tickles does it take to make a squid laugh? Tentacles.**_
+_**A platypus went into a hotel owned by a duck.. ..A platypus went into a hotel owned by a duck. Platypus ate food. Duck billed platypus**_
 
