@@ -1,2 +1,2 @@
-_**A platypus went into a hotel owned by a duck.. ..A platypus went into a hotel owned by a duck. Platypus ate food. Duck billed platypus**_
+_**Have a very Joseph Christmas! We shouldn't discriminate by sex, you know.**_
 
