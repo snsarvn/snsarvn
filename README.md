@@ -1,2 +1,2 @@
-_**Have a very Joseph Christmas! We shouldn't discriminate by sex, you know.**_
+_**Where did Napoleon Bonaparte keep his armies? In his sleevies.**_
 
