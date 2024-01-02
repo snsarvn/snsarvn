@@ -1,2 +1,2 @@
-_**What's green, fuzzy, and if it falls out of a tree it'll kill you? A pool table.**_
+_**My English teacher got really angry about the format of my essay. It wasn't justified.**_
 
