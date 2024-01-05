@@ -1,2 +1,2 @@
-_**New Internet acronym: RALSHMICOMN Rolling Around Laughing So Hard Milk Is Coming Out My Nose**_
+_**What did the Buddhist say to the hotdog vendor? Make me one with everything.**_
 
