@@ -1,2 +1,2 @@
-_**What did the Buddhist say to the hotdog vendor? Make me one with everything.**_
+_**What mysterious hair product does Lucifer use to keep himself looking good? Arcane-gel!**_
 
