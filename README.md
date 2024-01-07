@@ -1,2 +1,2 @@
-_**What mysterious hair product does Lucifer use to keep himself looking good? Arcane-gel!**_
+_**Why is Dr. Frankenstein never lonely? He's good at making friends.**_
 
