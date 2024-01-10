@@ -1,2 +1,2 @@
-_**What do you call a big pile of kittens? A meowtain.**_
+_**What state do most people live in? Denial. Myself included.**_
 
