@@ -1,2 +1,2 @@
-_**What state do most people live in? Denial. Myself included.**_
+_**Why did the clock go to the doctor? It had a tick-tock throat.**_
 
