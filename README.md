@@ -1,2 +1,2 @@
-_**Why did the clock go to the doctor? It had a tick-tock throat.**_
+_**A skeleton walks into a bar... Asks for a beer and a mop.**_
 
