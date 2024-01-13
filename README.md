@@ -1,2 +1,2 @@
-_**A skeleton walks into a bar... Asks for a beer and a mop.**_
+_**What's the difference between Bird flu and swine flu? For one you get tweetment and the other you get oinkment...**_
 
