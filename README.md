@@ -1,2 +1,2 @@
-_**Why was the Headless Horseman depressed? He could never seem to get ahead in life.**_
+_**Why did the raisin take the prune to the new year's ball? Because he couldn't find a date!**_
 
