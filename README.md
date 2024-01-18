@@ -1,2 +1,2 @@
-_**Wanna hear two short jokes and a long joke? Joke joke jooooke!**_
+_**What do you call an imaginary color? A pigment of your imagination.**_
 
