@@ -1,2 +1,2 @@
-_**What did daddy fish do when mommy fish got herself lost? ...He flounder**_
+_**Why do ghosts like to ride elevators? It lifts their spirits.**_
 
