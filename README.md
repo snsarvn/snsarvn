@@ -1,2 +1,2 @@
-_**Why do ghosts like to ride elevators? It lifts their spirits.**_
+_**What do you call the ghost of a chicken? A poultrygeist!**_
 
