@@ -1,2 +1,2 @@
-_**What do you call the ghost of a chicken? A poultrygeist!**_
+_**What did one nose say when the other nose said "I love you"? "Back achoo!"**_
 
