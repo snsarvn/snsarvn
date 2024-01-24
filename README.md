@@ -1,2 +1,2 @@
-_**What did one nose say when the other nose said "I love you"? "Back achoo!"**_
+_**What haircut did the Texan barber recommend when asked? He couldn't think of anything, and said "I'll mullet over"**_
 
