@@ -1,2 +1,2 @@
-_**What haircut did the Texan barber recommend when asked? He couldn't think of anything, and said "I'll mullet over"**_
+_**Note for Santa: Dear Santa, Please give me a big fat bank account and a slim body. Please don't mix those two up like you did last year. Thanks.**_
 
