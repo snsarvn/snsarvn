@@ -1,2 +1,2 @@
-_**Note for Santa: Dear Santa, Please give me a big fat bank account and a slim body. Please don't mix those two up like you did last year. Thanks.**_
+_**Why does not a forth-grader ever take the bus home? Because he knew his parents will make him return it.**_
 
