@@ -1,2 +1,2 @@
-_**What will you call a person who sleeps next to a close relative? A napkin.**_
+_**"What kind of house does cheese like to live in?" "A cottage"**_
 
