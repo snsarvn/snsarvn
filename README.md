@@ -1,2 +1,2 @@
-_**"What kind of house does cheese like to live in?" "A cottage"**_
+_**How many ears does Captain Picard have? A right ear. A left ear. And a final front ear.**_
 
