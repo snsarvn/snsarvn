@@ -1,2 +1,2 @@
-_**How many ears does Captain Picard have? A right ear. A left ear. And a final front ear.**_
+_**What did Descartes say while shopping online? I think therefore I Amazon.**_
 
