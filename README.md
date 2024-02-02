@@ -1,2 +1,2 @@
-_**What did Descartes say while shopping online? I think therefore I Amazon.**_
+_**What do cows like on their hotdogs? MOOstard.**_
 
