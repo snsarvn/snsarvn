@@ -1,2 +1,2 @@
-_**What do cows like on their hotdogs? MOOstard.**_
+_**My buddy the hacker took the quiz "What Beatles song best describes your life." The answer he got: "My Way".**_
 
