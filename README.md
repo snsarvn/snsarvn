@@ -1,2 +1,2 @@
-_**My buddy the hacker took the quiz "What Beatles song best describes your life." The answer he got: "My Way".**_
+_**I went in to a pet shop and said, Can I buy a goldfish? The guy said, Do you want an aquarium? I said, I don't care what star sign it is.**_
 
