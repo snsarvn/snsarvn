@@ -1,2 +1,2 @@
-_**What happened to the runny nose... it tripped and fell. Now it's all boogered up.**_
+_**What happens if socialism comes to the Sahara? Old Soviet-era joke told in Russia: What happens if socialism comes to the Sahara? Nothing at first, but then the sand shortages will start.**_
 
