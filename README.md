@@ -1,2 +1,2 @@
-_**What happens if socialism comes to the Sahara? Old Soviet-era joke told in Russia: What happens if socialism comes to the Sahara? Nothing at first, but then the sand shortages will start.**_
+_**My uncle wanted to give all his sheep a sex change... But it entailed too many ramifications!**_
 
