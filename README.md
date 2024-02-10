@@ -1,2 +1,2 @@
-_**I'm very keen I could tell he was bald at the drop of a hat.**_
+_**Why was the lobster upset? Because he found out his friends thought he was a little crabby!**_
 
