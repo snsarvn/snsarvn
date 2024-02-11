@@ -1,2 +1,2 @@
-_**Why was the lobster upset? Because he found out his friends thought he was a little crabby!**_
+_**How do you kill bread? Bake it for a little while, and it will be toast.**_
 
