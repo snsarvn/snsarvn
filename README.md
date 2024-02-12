@@ -1,2 +1,2 @@
-_**How do you kill bread? Bake it for a little while, and it will be toast.**_
+_**Why are giraffes slow to apologize? It takes them a long time to swallow their pride**_
 
