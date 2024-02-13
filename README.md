@@ -1,2 +1,2 @@
-_**Why are giraffes slow to apologize? It takes them a long time to swallow their pride**_
+_**"What kind of house does cheese like to live in?" "A cottage"**_
 
