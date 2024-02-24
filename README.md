@@ -1,2 +1,2 @@
-_**I'm tired of people calling America the dumbest country in the world. Quite frankly, I think Europe is!**_
+_**Science joke The bartender says "we don't serve your kind here" He orders a drink A Tachyon walks into a bar Who wants to hear a Tachyon joke?**_
 
