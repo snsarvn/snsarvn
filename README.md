@@ -1,2 +1,2 @@
-_**Science joke The bartender says "we don't serve your kind here" He orders a drink A Tachyon walks into a bar Who wants to hear a Tachyon joke?**_
+_**Have you heard about that hot Thai lounge singer? Yeah. They call him *Frank Sriracha.***_
 
