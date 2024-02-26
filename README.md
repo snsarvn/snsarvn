@@ -1,2 +1,2 @@
-_**Have you heard about that hot Thai lounge singer? Yeah. They call him *Frank Sriracha.***_
+_**What do you call a sheep with no legs? A cloud.**_
 
