@@ -1,2 +1,2 @@
-_**Why did the sheep go to the doctor? He had a baah-baah throat.**_
+_**What do you call a camel in Alaska? Lost.**_
 
