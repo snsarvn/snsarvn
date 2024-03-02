@@ -1,2 +1,2 @@
-_**What do you call a camel in Alaska? Lost.**_
+_**Why did the grocery delivery guy get fired? He drove people bananas!**_
 
