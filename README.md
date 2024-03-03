@@ -1,2 +1,2 @@
-_**Why did the grocery delivery guy get fired? He drove people bananas!**_
+_**So how's the shoestring game goin'? Right now, it's ALL TIED-UP!**_
 
