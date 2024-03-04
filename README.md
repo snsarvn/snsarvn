@@ -1,2 +1,2 @@
-_**So how's the shoestring game goin'? Right now, it's ALL TIED-UP!**_
+_**What kind of car did the German cowboy purchase? Audi**_
 
