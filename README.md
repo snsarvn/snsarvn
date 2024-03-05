@@ -1,2 +1,2 @@
-_**What kind of car did the German cowboy purchase? Audi**_
+_**What do call a horse that lives near you? A naybor.**_
 
