@@ -1,2 +1,2 @@
-_**What do call a horse that lives near you? A naybor.**_
+_**If I bought a balloon for $0.99 ... How much should I sell it for when I adjust for inflation?**_
 
