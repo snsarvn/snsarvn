@@ -1,2 +1,2 @@
-_**What's the difference between a firstborn prince and a baseball? A baseball is thrown to the air.**_
+_**Here's a funny joke I heard about pizza oh nevermind. It's too cheesy.**_
 
