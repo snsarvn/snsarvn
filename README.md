@@ -1,2 +1,2 @@
-_**Here's a funny joke I heard about pizza oh nevermind. It's too cheesy.**_
+_**What do you call a pachyderm that doesn't matter? Irrelephant.**_
 
