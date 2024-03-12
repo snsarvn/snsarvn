@@ -1,2 +1,2 @@
-_**What do you call a pachyderm that doesn't matter? Irrelephant.**_
+_**Finally decided on my thesis paper. It's a LOTR themed essay in defense of Sauron Titled "Getting away with Mordor"**_
 
