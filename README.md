@@ -1,2 +1,2 @@
-_**Finally decided on my thesis paper. It's a LOTR themed essay in defense of Sauron Titled "Getting away with Mordor"**_
+_**Mom asked if I wanted to race toy cars with my neighbor Chucky. I responded, "Nah, that's child's play."**_
 
