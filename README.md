@@ -1,2 +1,2 @@
-_**What do you call an Egyptian doctor who works on peoples backs? A Cairopractor!**_
+_**What kind of bird can write? A penguin.**_
 
