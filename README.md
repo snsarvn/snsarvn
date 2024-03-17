@@ -1,2 +1,2 @@
-_**What kind of bird can write? A penguin.**_
+_**Why don't blind people skydive? Because it scares their dogs too much!**_
 
