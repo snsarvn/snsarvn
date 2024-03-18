@@ -1,2 +1,2 @@
-_**Why don't blind people skydive? Because it scares their dogs too much!**_
+_**What should you do before criticizing Pac-Man? WAKA WAKA WAKA mile in his shoes**_
 
