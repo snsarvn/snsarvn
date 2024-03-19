@@ -1,2 +1,2 @@
-_**What should you do before criticizing Pac-Man? WAKA WAKA WAKA mile in his shoes**_
+_**Why did the sheep go to the doctor? He had a baah-baah throat.**_
 
