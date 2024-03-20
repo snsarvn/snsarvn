@@ -1,2 +1,2 @@
-_**Why did the sheep go to the doctor? He had a baah-baah throat.**_
+_**Knock knock. Who's there? Interrupting cow. Interrup........ MOOOOOOOOOOOOOOOO!**_
 
