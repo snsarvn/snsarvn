@@ -1,2 +1,2 @@
-_**What do you call a barbarian you can't see? an Invisigoth.**_
+_**Why do sailors give their wives a bouqet of ropes instead of flowers?? It's a bouqet of forget-me-knots.**_
 
