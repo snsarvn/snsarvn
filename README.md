@@ -1,2 +1,2 @@
-_**Why do sailors give their wives a bouqet of ropes instead of flowers?? It's a bouqet of forget-me-knots.**_
+_**This dermatologist waits a month to diagnose a skin disorder... She's reluctant to make a rash decision.**_
 
