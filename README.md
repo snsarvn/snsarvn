@@ -1,2 +1,2 @@
-_**This dermatologist waits a month to diagnose a skin disorder... She's reluctant to make a rash decision.**_
+_**I was wondering why the frisbee was getting bigger. And then it hit me.**_
 
