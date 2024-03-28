@@ -1,2 +1,2 @@
-_**I was wondering why the frisbee was getting bigger. And then it hit me.**_
+_**What did the buffalo say to his son when he left for college? Bison**_
 
