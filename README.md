@@ -1,2 +1,2 @@
-_**How much do pirates pay for earrings? about a buck an ear.**_
+_**What did the koala bear say to the barber? You ca-lip this?**_
 
