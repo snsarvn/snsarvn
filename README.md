@@ -1,2 +1,2 @@
-_**What did the koala bear say to the barber? You ca-lip this?**_
+_**Want to hear a joke about pizza? Never mind, it's probably too cheesy.**_
 
