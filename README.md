@@ -1,2 +1,2 @@
-_**Why did the old man fall in the well? Because he couldn't see that well.**_
+_**How do you prepare for a party in space? You planet**_
 
