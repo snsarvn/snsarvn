@@ -1,2 +1,2 @@
-_**I knew this guy who would ask men at church, "is your tie made out of bird cloth?" *blank stare* "It's cheep, cheep, cheep."**_
+_**Did you hear about the lawyer for U2? He was Pro-Bono**_
 
