@@ -1,2 +1,2 @@
-_**Why do fish always sing off key? Because you can't tune a fish.**_
+_**What do you call a cow with no legs? Ground beef!**_
 
