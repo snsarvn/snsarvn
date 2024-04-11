@@ -1,2 +1,2 @@
-_**What do you call a cow with no legs? Ground beef!**_
+_**What do you get when you cross Kansas with a vulture? Carrion my wayward son**_
 
