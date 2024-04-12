@@ -1,2 +1,2 @@
-_**What do you get when you cross Kansas with a vulture? Carrion my wayward son**_
+_**Why did the vampire use mouthwash? Because he had bat breath**_
 
