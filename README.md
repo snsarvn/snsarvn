@@ -1,2 +1,2 @@
-_**Why did the rabbit go to rehab? He was hopped up on easter eggs.**_
+_**How many South Americans does it take to change a lightbulb? A Brazilian.**_
 
