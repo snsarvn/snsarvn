@@ -1,2 +1,2 @@
-_**Why did the banana go to the doctor? It had a split personality.**_
+_**Why are snakes so difficult to pick up in Japan? Because in Japan, snakes are hebi.**_
 
