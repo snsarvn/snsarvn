@@ -1,2 +1,2 @@
-_**There's a guy at the office today wearing full camo. At least I think so... I haven't seen him in a while.**_
+_**What do you call people who pretend to be Irish on St. Patrick's Day? Counterfitz**_
 
