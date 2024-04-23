@@ -1,2 +1,2 @@
-_**What do you call people who pretend to be Irish on St. Patrick's Day? Counterfitz**_
+_**What Time Do You Go To The Dentist? Tooth - Hurty!**_
 
