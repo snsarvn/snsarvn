@@ -1,2 +1,2 @@
-_**What Time Do You Go To The Dentist? Tooth - Hurty!**_
+_**Why was the scarecrow promoted? Because he was outstanding in his field!**_
 
