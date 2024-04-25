@@ -1,2 +1,2 @@
-_**Why was the scarecrow promoted? Because he was outstanding in his field!**_
+_**What did the bee use to get out the tangles? A honeycomb.**_
 
