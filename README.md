@@ -1,2 +1,2 @@
-_**What did the bee use to get out the tangles? A honeycomb.**_
+_**What animal is best at hitting a baseball? A bat!**_
 
