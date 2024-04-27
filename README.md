@@ -1,2 +1,2 @@
-_**What animal is best at hitting a baseball? A bat!**_
+_**Why did the rap battle champion get the most spacious and accessible seat on the bus? Because of his dis-ability.**_
 
