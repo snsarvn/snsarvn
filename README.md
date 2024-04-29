@@ -1,2 +1,2 @@
-_**What do you call a Macho Man Randy Savage that does not belong to you? Nacho Man Randy Savage!**_
+_**Did you hear they're republishing that Simple Mathematics study guide? It's the revised addition.**_
 
