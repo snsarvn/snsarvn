@@ -1,2 +1,2 @@
-_**Did you hear they're republishing that Simple Mathematics study guide? It's the revised addition.**_
+_**What do you call an atheist bone? A blasfemur.**_
 
