@@ -1,2 +1,2 @@
-_**What do you call an atheist bone? A blasfemur.**_
+_**How many golfers does it take to change a light bulb? FOUR!**_
 
