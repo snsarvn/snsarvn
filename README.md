@@ -1,2 +1,2 @@
-_**How many golfers does it take to change a light bulb? FOUR!**_
+_**What do you call an Italian guy with a rubber toe? Roberto**_
 
