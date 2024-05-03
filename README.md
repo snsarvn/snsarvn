@@ -1,2 +1,2 @@
-_**What do you call an Italian guy with a rubber toe? Roberto**_
+_**Why don't blind people like skydiving? It scares the crap out of the dog.**_
 
