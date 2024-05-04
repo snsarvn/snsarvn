@@ -1,2 +1,2 @@
-_**Why don't blind people like skydiving? It scares the crap out of the dog.**_
+_**Have you guys ever heard of the crazy Mexican Train Killer? He had...... Loco Motives**_
 
