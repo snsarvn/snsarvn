@@ -1,2 +1,2 @@
-_**Have you guys ever heard of the crazy Mexican Train Killer? He had...... Loco Motives**_
+_**Why are giraffes slow to apologize? It takes them a long time to swallow their pride**_
 
