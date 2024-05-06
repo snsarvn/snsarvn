@@ -1,2 +1,2 @@
-_**Why are giraffes slow to apologize? It takes them a long time to swallow their pride**_
+_**The Dalai Lama walks into a pizza store... and says, "Can you make me one with everything?"**_
 
