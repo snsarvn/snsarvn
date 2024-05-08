@@ -1,2 +1,2 @@
-_**Why can't you hear a pterodactyl urinate? Because of the silent P.**_
+_**What did earth say to the other planets? You guys have no life!**_
 
