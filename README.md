@@ -1,2 +1,2 @@
-_**What did earth say to the other planets? You guys have no life!**_
+_**What begins with E, ends with E, and has one letter? envelope**_
 
