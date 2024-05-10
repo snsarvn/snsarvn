@@ -1,2 +1,2 @@
-_**What begins with E, ends with E, and has one letter? envelope**_
+_**Do you know why there's no casinos in Africa? Because there's too many CHEETAHS!**_
 
