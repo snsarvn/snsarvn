@@ -1,2 +1,2 @@
-_**Do you know why there's no casinos in Africa? Because there's too many CHEETAHS!**_
+_**If you bury someone in the wrong place then you have made a grave mistake.**_
 
