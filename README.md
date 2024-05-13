@@ -1,2 +1,2 @@
-_**What did the fish say when it ran into the wall? Dam**_
+_**I support farming and math... I'm pro-tractor.**_
 
