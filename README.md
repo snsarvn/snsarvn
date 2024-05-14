@@ -1,2 +1,2 @@
-_**I support farming and math... I'm pro-tractor.**_
+_**Where did the universe attend college? At the university.**_
 
