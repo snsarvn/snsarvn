@@ -1,2 +1,2 @@
-_**Where did the universe attend college? At the university.**_
+_**Why did the melon get married in a church? Because he was in love with a cantaloupe.**_
 
