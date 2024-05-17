@@ -1,2 +1,2 @@
-_**Why do Hutus hate Dustin Hoffman? He impersonated a Tootsie.**_
+_**My biggest problem with passive smoking is having to follow the smoker around.**_
 
