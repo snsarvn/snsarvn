@@ -1,2 +1,2 @@
-_**My biggest problem with passive smoking is having to follow the smoker around.**_
+_**When do you know you are getting a good deal on a boat? When there's a sail on it.**_
 
