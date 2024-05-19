@@ -1,2 +1,2 @@
-_**When do you know you are getting a good deal on a boat? When there's a sail on it.**_
+_**If I ever fire someone who is a Taylor Swift fan I'll say "I knew you were trouble when you clocked in."**_
 
