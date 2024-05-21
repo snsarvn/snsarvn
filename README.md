@@ -1,2 +1,2 @@
-_**How many dancers does it take to change a lightbulb? 5,6,7,8**_
+_**What did the pony say when he had a sore throat? Pardon me, I'm just a little hoarse.**_
 
