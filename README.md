@@ -1,2 +1,2 @@
-_**What did the pony say when he had a sore throat? Pardon me, I'm just a little hoarse.**_
+_**I believe a lot of conflict in the Wild West could have been avoided completely... if cowboy architects had just made their towns big enough for everyone.**_
 
