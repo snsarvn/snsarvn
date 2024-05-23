@@ -1,2 +1,2 @@
-_**I believe a lot of conflict in the Wild West could have been avoided completely... if cowboy architects had just made their towns big enough for everyone.**_
+_**Did you know yesterday was National Middle Child Day? Don't worry, no one else remembered either.**_
 
