@@ -1,2 +1,2 @@
-_**Did you know yesterday was National Middle Child Day? Don't worry, no one else remembered either.**_
+_**What do you call a fear of horned bovines? Aurochnophobia.**_
 
