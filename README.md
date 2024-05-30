@@ -1,2 +1,2 @@
-_**Why are proteins so cranky? Because they're made of a mean ol' acids.**_
+_**What did the butcher say when he handed his customer an empty pack of hotdogs on halloween? Happy halloweenie**_
 
