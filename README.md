@@ -1,2 +1,2 @@
-_**What did the butcher say when he handed his customer an empty pack of hotdogs on halloween? Happy halloweenie**_
+_**A vampire stopped coming to my nightly poker games. All I said was that he made too many mistakes...**_
 
