@@ -1,2 +1,2 @@
-_**Why did no one ever consider Tony Stark (the Iron Man) a protagonist? Because he was always cited as the Anthony hero.**_
+_**Why did the chicken cross the playground? To get to the other slide.**_
 
