@@ -1,2 +1,2 @@
-_**What do you get when you mix two chains and a cow? Truuuuuuuuuuu-moooooooooooooooooo!!!**_
+_**Two competing podiatrists opened offices next door to each other... They were arch enemies.**_
 
