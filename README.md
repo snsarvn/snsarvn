@@ -1,2 +1,2 @@
-_**Two competing podiatrists opened offices next door to each other... They were arch enemies.**_
+_**What did the mailman say when his Mail truck caught fire? That he needed to address the situation**_
 
