@@ -1,2 +1,2 @@
-_**What did the mailman say when his Mail truck caught fire? That he needed to address the situation**_
+_**X-post from r/jokes: "Hey! The dog you sold me yesterday just fell over and died today!" "Huh, strange. He's never done that before."**_
 
